@@ -1,1 +1,1 @@
-# TanishGarg_Resume
+# Tanish Garg Resume
